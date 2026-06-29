@@ -1,4 +1,4 @@
-# 
+# Elite binance futures bot ferramentas for Mac OS | VIP binance futures bot ferramentas for PC Windows. Featuring estratégia de reversão à média and API de exchange centralizada — optimized for maximum performance.
 
 
 
